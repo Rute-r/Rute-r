@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Rute,
+- 🌱 I’m currently a web developer under development :D
